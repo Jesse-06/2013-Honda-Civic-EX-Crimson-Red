@@ -1,4 +1,4 @@
-## 2013 Honda Civic EX Sedan 
+   ## 2013 Honda Civic EX Sedan 
 # Dallas, TX 
 # Dallas Fort Worth 
 
@@ -7,7 +7,7 @@
 ## 067797 Miles 
 ### $12,750
 ## +1(313)652 6254
-
+# For Sale By Owner
 ### gotosoto4@gmail.com
 
 |MSRP| $20,815|
