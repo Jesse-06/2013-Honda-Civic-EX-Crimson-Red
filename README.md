@@ -6,7 +6,7 @@
 
 ## 067797 Miles 
 ### $12,750
-## +1(313)652 6254 ### gotosoto4@gmail.com
+## +1(313)652 6254  gotosoto4@gmail.com
 # For Sale By Owner
 
 
