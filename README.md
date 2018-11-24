@@ -15,7 +15,7 @@
 |Park Distance Control| Rear Camera|
 |Handsfree Calling| BlueTooth-to-phone|
 |Tire Pressure Monitor System|Electronic-in-dash Display|
-|Sunroof| Express Open/Close|
+|Moonroof| Express Open/Close|
 |Climate Control| Automatic Air Conditioning| 
 |CD Player| In-dash Mounted Single|
 |Hands Free|Radio Steering Wheel Controls| 
