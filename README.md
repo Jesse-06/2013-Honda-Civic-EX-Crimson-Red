@@ -1,5 +1,5 @@
 ## 2013 Honda Civic EX Sedan Dallas Texas
-# Dallas, TX 
+# Dallas, TX | Rockwall, TX | Richardson, TX | Arlington, TX
 # Dallas Fort Worth 
 
 ![img_0934](https://user-images.githubusercontent.com/15620108/48378098-58417300-e695-11e8-87b9-549b4f0439fb.jpg)
@@ -35,7 +35,7 @@
 |Cup Holder| Front and Rear|
 
 
-Located here in the metroplex: Dallas,TX; Denton,TX; Fort Worth,TX; Lewisville,TX; Garland,TX; Richardson,TX; Mesquite,TX; Addison,TX
+Located here in the metroplex: Dallas,TX; Denton,TX; Fort Worth,TX; Lewisville,TX; Garland,TX; Richardson,TX; Mesquite,TX; Addison,TX; Arlington,TX; Plano,TX
 ![img_0929](https://user-images.githubusercontent.com/15620108/48378302-dc93f600-e695-11e8-81ac-9b98d6f37ebb.jpg)
 
 ![img_0893](https://user-images.githubusercontent.com/15620108/48378373-051bf000-e696-11e8-950f-9c498bd1a4b6.jpg)
