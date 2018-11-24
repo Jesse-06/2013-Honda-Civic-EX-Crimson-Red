@@ -5,7 +5,7 @@
 ![img_0934](https://user-images.githubusercontent.com/15620108/48378098-58417300-e695-11e8-87b9-549b4f0439fb.jpg)
 
 ## 067797 Miles 
-### $12,750
+### $11,500
 ## |+1(313)652 6254 | gotosoto4@gmail.com|
 # For Sale By Owner
 
