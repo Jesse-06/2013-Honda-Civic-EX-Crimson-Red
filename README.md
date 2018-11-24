@@ -13,8 +13,8 @@
 |MSRP| $20,815|
 |----|--------|
 |Park Distance Control| Rear Camera|
-|Handsfree Calling| BlueTooth-To-Phone|
-|Tire Pressure Monitor System|Electronic-In-Dash Display|
+|Handsfree Calling| BlueTooth-to-phone|
+|Tire Pressure Monitor System|Electronic-in-dash Display|
 |Sunroof| Express Open/Close|
 |Climate Control| Automatic Air Conditioning| 
 |CD Player| In-dash Mounted Single|
